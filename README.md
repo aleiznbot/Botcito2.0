@@ -1,4 +1,4 @@
-# BotPermanente
+# 𝐁𝐨𝐭𝐜𝐢𝐭𝐨𝟐.𝟎
 # `@𝐀𝐥𝐞.𝐢𝐳𝐧.𝟐𝟎 `
 
 ### `—◉ 👑 DUDAS SOBRE EL BOT?, CONTACTAME 👑`
